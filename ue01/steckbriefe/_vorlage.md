@@ -9,5 +9,5 @@ Noch gar keine
 …
 
 ## Das erwarte ich von der Veranstaltung
-Viel zu lernen
+Viel zu lernen.
 …
